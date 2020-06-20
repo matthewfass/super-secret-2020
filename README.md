@@ -21,5 +21,8 @@
 - don't touch that dial
 - refresh
 - oh wait, did we mention it's the solstice?
-- max [917-497-7852](tel:917-497-7852) | [matthewfass@gmail.com](mailto:matthewfass@gmail.com) | [FB](https://www.facebook.com/matthewfass/) 
+- max 
+[917-497-7852](tel:917-497-7852) 
+[matthewfass@gmail.com](mailto:matthewfass@gmail.com)
+[FB](https://www.facebook.com/matthewfass/) 
 
