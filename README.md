@@ -17,8 +17,9 @@
 - but less actually
 - you WOULD drive there even if it WAS 90 mins away
 - pandemic good times, upstate style
-- more instructions will be revealed at 2 pm Sunday, June 21, 2020 RIGHT HERE on this very page
+- RSVP by text, tin-can telephone, messenger, morse code, semaphores for directions/info to be sent at approx 2 pm sunday
 - don't touch that dial
 - refresh
 - oh wait, did we mention it's the solstice?
+- max [917-497-7852](tel:917-497-7852) | [matthewfass@gmail.com](mailto:matthewfass@gmail.com) | [FB](https://www.facebook.com/matthewfass/) 
 
