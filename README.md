@@ -13,13 +13,18 @@
 - bring yo loved ones
 - bring yo musical axes/axis
 - sing something
+- teach us something
+- read us some poetry
 - within 90 mins of Kingston
 - but less actually
 - you WOULD drive there even if it WAS 90 mins away
 - pandemic good times, upstate style
+- outdoor event
+- choose your own social distance
 - RSVP by text, tin-can telephone, messenger, morse code, semaphores for directions/info to be sent at approx 2 pm sunday
 - don't touch that dial
-- refresh
+- keep it tuned here
+- [refresh](https://matthewfass.com/super-secret-2020/)
 - oh wait, did we mention it's the solstice?
 - max — [917-497-7852](tel:917-497-7852) — [email](mailto:matthewfass@gmail.com) — [FB](https://www.facebook.com/matthewfass/) — [-- .- -..-](https://en.wikipedia.org/wiki/Morse_code#/media/File:International_Morse_Code.svg) 
 
