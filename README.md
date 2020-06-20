@@ -5,6 +5,8 @@
 # SS 2020
 ## super secret event at a super secret location for a super secret person
 - sunday, june 21, 2020 at 4 pm
+- starts at 4 - goes til at least 9 
+- come and go on your own time
 - swimming
 - music
 - bring yo food
