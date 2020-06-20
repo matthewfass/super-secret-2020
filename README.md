@@ -1,11 +1,12 @@
 # Super Secret 2020!
 ## Super Secret Event at a Super Secret Location for a Super Secret Person
-- at 4 pm 
-- Sunday, June 21, 2020
+- Sunday, June 21, 2020 at 4 pm
 - swimming
 - music
-- byo food
-- byo drink
+- bring yo food
+- bring yo drink
+- bring yo blankets, chairs
+- bring yo loved ones
 - within 90 mins of Kingston
 - but less actually
 - you WOULD drive there even if it WAS 90 mins away
