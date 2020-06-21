@@ -5,6 +5,9 @@
 # SS 2020
 ## super secret event at a super secret location for a super secret person
 
+![map](./assets/map.jpg)
+
+
 - sunday, june 21, 2020
 - 4 pm until dusk, dark, midnight, dawn, mid-morning, noon
 - call 845-663-1232 for location
