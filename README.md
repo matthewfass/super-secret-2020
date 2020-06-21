@@ -11,6 +11,7 @@
 - sunday, june 21, 2020
 - 4 pm until dusk, dark, midnight, dawn, mid-morning, noon
 - call 845-663-1232 for location
+- or just [click this](https://goo.gl/maps/omggu6QzUJzUXSfZ8)
 - Probably no cell service so be prepared
 - Five mins from lot to water
 
